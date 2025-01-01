@@ -7,3 +7,5 @@ Website
 https://sites.google.com/view/mahonisaglam
 Blog
 https://mahonisg1.blogspot.com/
+Original
+https://xdaforums.com/t/request-huawei-ascend-stock-wallpaper.1771566/
