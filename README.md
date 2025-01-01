@@ -5,3 +5,5 @@ Download
 https://www.mediafire.com/?idnnwuvgs0w9i9z
 Website
 https://sites.google.com/view/mahonisaglam
+Blog
+https://mahonisg1.blogspot.com/
